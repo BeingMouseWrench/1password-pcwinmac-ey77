@@ -1,4 +1,4 @@
-# 
+# Instant 1Password presets for Mac OS | Smart 1Password presets for PC Windows. Featuring streaming optimization and cloud-based scanning — optimized for maximum performance on every platform.
 
 
 
